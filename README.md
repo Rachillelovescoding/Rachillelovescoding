@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rachille
+- 👋 Hi, I’m @Rachille 16yr
 - 👀 I’m interested in coding programming ,developing ,designing
 - 🌱 I’m currently learning Programming on my own i guess...
 - 💞️ I’m looking to collaborate on anything tbh free to teach me anthing 
